@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🌱 I’m currently learning on Front-End and Back-End Developing
+- 👯 I’m looking to collaborate on projects
+- 📫 How to reach me: calvinjanitra9@gmail.com
+- ⚡ Hobbies : listen to musics
